@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **younesbouchbouk.py@gmail.com**
 
-- 📫 My portfolia **[younesbouchbouk.py@gmail.com](https://www.younesdev.com/)**
+- 📫 My portfolia **[www.younesdev.com](https://www.younesdev.com/)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
